@@ -1,5 +1,5 @@
 # lab
 
-<<<<<<< HEA
-<<<<<<< HEAD
->>>>>>> 8e352b4807038126bf0
+asdjkflajsdlkfjaslkdf
+qjweirojqowefj
+cxjviodsjfioasjdfiodsaf
